@@ -149,6 +149,7 @@ These are exceptionally well written, humorous, and display a surprising lack of
 Books:
 * [The Name of the Wind](https://www.goodreads.com/book/show/186074.The_Name_of_the_Wind) [4.55]
 * [The Wise Man's Fear](https://www.goodreads.com/book/show/1215032.The_Wise_Man_s_Fear) [4.56]
+* [Doors of Stone](https://www.goodreads.com/book/show/21032488-doors-of-stone) [TBD]
 
 > The Kingkiller Chronicle is a fantasy trilogy by Patrick Rothfuss, telling the autobiography of Kvothe, an adventurer and famous musician.
 
