@@ -230,6 +230,7 @@ I completely agree that however long these books are, it doesn't really matter. 
 Books:
  * [The Way of Kings](https://www.goodreads.com/book/show/7235533-the-way-of-kings) [4.61] <img src="http://i.imgur.com/iA6WScw.png" width="30px">
  * [Storms of Radiance](https://www.goodreads.com/book/show/17332218-words-of-radiance) [4.76]
+ * [Oathbringer](https://www.goodreads.com/book/show/17250961-oathbringer) [TBD]
  * _More coming_
 
 #### The Wheel of Time *by Robert Jordan* (and Brandon Sanderson) [4.15] <img src="http://i.imgur.com/iA6WScw.png" width="30px">
